@@ -1,2 +1,2 @@
-# Projecto_informatico-2026
+# Proyecto_informatico-2026
 toda mi tareita
